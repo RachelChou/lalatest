@@ -20,6 +20,8 @@ hey, just a small test for recording my work during this summer :)
 
 感谢学校和泰迪公司给予这次机会，让我受益匪浅
 
+感谢林晨师兄、林伟业师兄、杜晓钘同学、朱致鹏同学、龙品多同学的鼎力相助，让我在心态临崩前感受到柳暗花明又一村的温暖
+
 以后还要继续加油 :)
 
 
